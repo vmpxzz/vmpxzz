@@ -5,7 +5,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ noah // king . 15yro . only friends c+h pls!!‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 🐾
 
-‎ ‎ ‎ ‎ ‎ ‎ taken by my amazing gf (i love her sm). int‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎🐝
+‎ ‎ ‎ ‎ ‎ ‎ basic dnis. otherwise your welcome to int‎ ‎:) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎🐝
 
 ‎ ‎ ‎ ‎ ‎ ‎ dnc my skins , read strawp for more info abt me‎ ‎ ‎ ‎ ‎ ‎ ‎🎀
 
