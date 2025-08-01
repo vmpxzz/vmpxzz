@@ -8,12 +8,27 @@
 ★⋆      ┊ .  ˚
            ˚★
 
+
+
 ﹒　    　 †　　　    𓈒　   　　୧　    　　₎
- 　 　 noah /alex   ┈┈   e , k , b <333
-　   　       　mitsuba + kaworu nagisa kinnie 　　　
+ 　 noah /alex   ┈┈   e , k , b <333
+　   　   
+    
+
+
+　mitsuba + kaworu nagisa kinnie 　　　
 ₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
+
+
+
+
+
+
+
+
+
 
 <img1 src="https://i.pinimg.com/736x/82/a9/53/82a953c0ee507613e3f69f9c2771cf11.jpg" alt="This may contain: a drawing of a person with pink hair"/><img width="1024" height="722" alt="image" src="https://github.com/user-attachments/assets/10e0a4de-8a64-4d70-b787-5b34d35d8bdf" />
 
-<img1 src="https://media1.tenor.com/m/KSy1szZ_kXkAAAAC/mitsuba-mitsuba-sousuke.gif" alt="a girl with pink hair is holding a magazine with a picture of a man playing golf"/><img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/df9a430d-2306-46c3-9144-6ce6256360be" />
+
 
