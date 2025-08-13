@@ -1,34 +1,40 @@
-<img1 src="https://i.pinimg.com/736x/c9/65/39/c965396d2c45b5c5fdb95f041160636d.jpg" alt="This may contain: two anime characters hugging each other in front of a blue background with words above them"/><img width="1095" height="477" alt="image" src="https://github.com/user-attachments/assets/83324f41-7538-4eb4-b8da-fdb921c92dfc" />
 
-┊         ┊       ┊   ┊    ┊        ┊
-┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
-┊         ┊       ┊   ⋆
-┊         ┊       ★⋆
-┊ ◦
-★⋆      ┊ .  ˚
-           ˚★
+<img src="https://i.pinimg.com/736x/8c/c1/36/8cc136742f2738c8967988ab6ca0257d.jpg" alt="This may contain: an anime character is looking at the credit card information page, which includes security code"/><img width="735" height="352" alt="image" src="https://github.com/user-attachments/assets/6cc1026d-6842-469e-a691-e54250191495" />
+
+༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻༺｡° .ᘛ𓆩♡𓆪ᘚ. ° ｡༻
 
 
 
-﹒　    　 †　　　    𓈒　   　　୧　    　　₎
- 　 noah /alex   ┈┈   e , k , b <333
-　   　   
-    
-
-
-　mitsuba + kaworu nagisa kinnie 　　　
-₊　 　　⌓⌓ 　   　  ⚤⠀　  　﹕　　 ♡
-
-
+⠀⠀⠀⠀𓂋 ⠀⠀⠀
+ᡴ ◜  ͡    ͡    ͡   ╮⑅つ   ⠀ ⠀ ⊹⠀   ྀི  . 
+꒰  𓏼  ◞  ˔  ◟ 𓏼  ꒱ ⠀    ⠀    ⠀*noah* 　
+╰- ⠀ ⑅ ⠀-╯ ⸝⸝⸝⸝    ) ഒ ⠀   `**bi , ace**`
+૮      ૮◟  _ ノと
+⠀
+⠀ ⠀⠀⠀
 
 
 
+⠀⠀⠀⠀⠀ ⠀**tboy**⠀ ♡
+⠀ ⠀⠀⠀⠀⠀ ʚ⠀ they , he ⠀ɞ
+ ◠ ◦ khloe , elliot , noelle ,starla <3 ↜
+`'' ,, sticks and stones may break my bones,
+but anything you say will only fuel my lungs! !̳!̳ ☆`
+⠀ ⠀⠀⠀⠀⠀ ⠀    ͝ ꒡⠀† ݁ ⠀ ⏝⏝ ⠀ ݁ †⠀꒡ ͝
+‌‌ ‌    ⑅ ‌ 　‌‌ ‌ ‌ ‌ 　‌‌     、⠀𓂋      ˖  ⠀  　⠀｡ ⠀ 
+  ⑅ ;   fav colors`   ꒰  < **red**, *purpl, blue* . . ꒱
+     ⁽         ꔫ       ⁾    ꒰   ྀི. . ꒱
+⠀       っ🥛 ૮           ༝ ⠀ ⠀ ణ
+   
 
 
 
 
 
-<img1 src="https://i.pinimg.com/736x/82/a9/53/82a953c0ee507613e3f69f9c2771cf11.jpg" alt="This may contain: a drawing of a person with pink hair"/><img width="1024" height="722" alt="image" src="https://github.com/user-attachments/assets/10e0a4de-8a64-4d70-b787-5b34d35d8bdf" />
 
 
 
+
+
+
+<img src="https://i.pinimg.com/736x/e9/42/e2/e942e213665e928abcc5286145ee2759.jpg" alt="Story pin image"/><img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/d58abf70-0d18-454d-9a27-2c0f5fd96df2" />
