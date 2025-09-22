@@ -9,7 +9,7 @@
       `**bi , ace**`⠀⠀⠀ ⠀**tboy**⠀ ♡
 ⠀ ⠀⠀⠀⠀⠀ ʚ⠀ they , he ⠀ɞ
 
- ◠ ◦ khloe , liz , elliot ,  noelle , starla <3 ↜
+ ◠ ◦ khloe , zayn , elliot ,  noelle , starla <3 ↜
 
 
 
