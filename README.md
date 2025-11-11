@@ -9,3 +9,5 @@
 
  ◠ ◦ sugar dont you forget me ! <3 ↜
 
+
+**IMPORTANT**, *if you are in drama for something, or someone i know on ponytown got into drama, LEAVE ME OUT OF IT. i do NOT wanna be involved in pt drama due to the fact my body cannot handle stress, and im very vulnerable to stress induced insomnia*
