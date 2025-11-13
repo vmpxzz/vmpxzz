@@ -1,13 +1,11 @@
-<img1 src="https://i.pinimg.com/736x/af/08/d9/af08d9ac3f9f9b5d81ec3cc081c7ce93.jpg" alt="Story pin image"/><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/0b71dcf7-85a6-48e8-b021-d5882da90570" />
+ ![17630470425493373683968664054863](https://github.com/user-attachments/assets/4ef7f70a-ba87-4499-abb4-90c6bca1148c)
 
 
 
 
-⠀⠀        ⠀       ⠀*noah* 　⠀
-      `**bi , ace**`⠀⠀⠀ ⠀**tboy**⠀ ♡
-⠀ ⠀⠀⠀⠀⠀ ʚ⠀ they , he ⠀ɞ
+
+⠀⠀      ⠀     ⠀*noah* / `kei`　⠀
+      `**bi , ace**`⠀,⠀**tboy**⠀ ♡
+⠀ ⠀⠀⠀⠀⠀ ʚ⠀ they , nikos dih suckerɞ
 
  ◠ ◦ sugar dont you forget me ! <3 ↜
-
-
-**IMPORTANT**, *if you are in drama for something, or someone i know on ponytown got into drama, LEAVE ME OUT OF IT. i do NOT wanna be involved in pt drama due to the fact my body cannot handle stress, and im very vulnerable to stress induced insomnia*
