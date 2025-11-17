@@ -11,4 +11,3 @@
  ◠ ◦ sugar dont you forget me ! <3 ↜
 
 
-**and for the bea vs elliot drama, I'm not involved anymore, but i will answer questions about it if anyone asks HELP**
