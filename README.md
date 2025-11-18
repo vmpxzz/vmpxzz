@@ -1,13 +1,10 @@
- ![17630470425493373683968664054863](https://github.com/user-attachments/assets/4ef7f70a-ba87-4499-abb4-90c6bca1148c)
+![17634886249634011690466707557213](https://github.com/user-attachments/assets/4b1a1613-30ef-4fbf-9a61-9004434c1b27)
 
 
 
 
 
-⠀⠀      ⠀     ⠀*noah* / `kei`　⠀
-      `**bi , ace**`⠀,⠀**tboy**⠀ ♡
-⠀ ⠀⠀⠀⠀⠀ ʚ⠀ they , nikos dih suckerɞ
-
- ◠ ◦ sugar dont you forget me ! <3 ↜
+⠀⠀𓏼 ͜͜✚ noa ◞ noah!! ♡⃕
+he ◞  they ꔫ◞
 
 
