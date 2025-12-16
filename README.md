@@ -1,12 +1,7 @@
-![17659131517713429946772458066345](https://github.com/user-attachments/assets/8373e14c-4263-4093-8df8-a73de46528d4) ✦ ｡ noah  / noa ◡ 16 ◡ they, he ◡ est ｡ ✦ ![17659132243593266938949694463939](https://github.com/user-attachments/assets/f3b52df9-218d-46f8-843a-b480d5026262) 
-    
-           
-  ![17659132916883198189552375897980](https://github.com/user-attachments/assets/dd721318-c174-489c-ae93-088edb1c6a6a)
+┣▇▇▇═── ( ᵒ̴̶̷̣̥̀ .＾ )ಎ⠀꒱꒱
 
+![17659160721631326919795354623595](https://github.com/user-attachments/assets/c17e6390-bfdd-477d-a4de-e21b1f85e6d0) ꪀׁׅᨵׁׅɑׁׅ֮hׁׅ֮ / ꪀׁׅᨵׁׅɑׁׅ֮ , 16  ,   𝓽𝓱𝓮𝔂 / 𝓱𝓮    ,  𝓮𝓼𝓽 ![17659160902465140111345642137766](https://github.com/user-attachments/assets/bd2aaf4d-6279-46f9-8ad2-4bd7256c4abd)   
+![17659165587957098384457557422550](https://github.com/user-attachments/assets/0ced0e9b-84d7-44c2-9492-387e3a704003)
 
-
-
-
-
-
-
+꒰ྀི　(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)　✚༏ིྀᐩ⠀꒱꒱
+<img width="259" height="224" alt="17659157823708203709880101481522" src="https://github.com/user-attachments/assets/f1074061-b0ba-468c-899f-ae5095afa324" />
