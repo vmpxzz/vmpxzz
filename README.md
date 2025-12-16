@@ -1,9 +1,6 @@
-![17649922277272662741084131384444](https://github.com/user-attachments/assets/ebcc90f4-28be-4444-9cf4-1ab295d8faa4)
+![17659131517713429946772458066345](https://github.com/user-attachments/assets/8373e14c-4263-4093-8df8-a73de46528d4)   ![17659132243593266938949694463939](https://github.com/user-attachments/assets/f3b52df9-218d-46f8-843a-b480d5026262) 
 
 
-
-
-⠀⠀𓏼 ͜͜✚ noa ◞ noah!! ♡⃕
-he ◞  they ꔫ◞
+![17659132916883198189552375897980](https://github.com/user-attachments/assets/dd721318-c174-489c-ae93-088edb1c6a6a)
 
 
