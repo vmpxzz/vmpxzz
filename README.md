@@ -4,4 +4,5 @@
 ![17659165587957098384457557422550](https://github.com/user-attachments/assets/0ced0e9b-84d7-44c2-9492-387e3a704003)
 
 ꒰ྀི　(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)　✚༏ིྀᐩ⠀꒱꒱
-<img width="259" height="224" alt="17659157823708203709880101481522" src="https://github.com/user-attachments/assets/f1074061-b0ba-468c-899f-ae5095afa324" />
+<img src="https://i.pinimg.com/736x/b6/1d/25/b61d251739646b08b4ce23bde7ad4fb1.jpg" alt="Story pin image"/><img width="736" height="724" alt="image" src="https://github.com/user-attachments/assets/a87621f2-1e89-48ec-b3a4-00f9e49b8f29" />
+
