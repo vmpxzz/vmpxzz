@@ -5,5 +5,4 @@
 
 ꒰ྀི　(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)　✚༏ིྀᐩ⠀꒱꒱
 
-<img1 src="https://i.pinimg.com/736x/b6/1d/25/b61d251739646b08b4ce23bde7ad4fb1.jpg" alt="Story pin image"/><img width="736" height="724" alt="image" src="https://github.com/user-attachments/assets/a87621f2-1e89-48ec-b3a4-00f9e49b8f29" />
-
+<img1 src="https://i.pinimg.com/736x/b6/1d/25/b61d251739646b08b4ce23bde7ad4fb1.jpg" alt="Story pin image"/><img width="736" height="724" alt="image" src="https://github.com/user-attachments/assets/ae6c5be5-23c3-40f5-9b45-53d2a921fc5f" />
